@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @j4cint4
-- 👀 I’m interested in cyber security mostly 
-- 🌱 I was learning campus but didn't finish
-- 💞️ I’m looking for someone to teach me the course
-- 📫 How to reach me via jacintawambui465@gmail.com
+- 👀 I’m a #åcker 
+- 🌱 I ....:/..
+- 💞️ I'm 
+- 📫 jacintawambui465@gmail.com
 - 😄 Pronouns: JW
-- ⚡ Fun fact: am a fast learner 
+- ⚡ Fun fact: $$
 
 <!---
 j4cint4/j4cint4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
